@@ -1,5 +1,9 @@
 ## Hi there 👋 !!
 
+I'm Sunn1e!! Nice to meet you!
+
+I play a lot of Ponytown with my gf and Minecraft :)
+
 <!--
 **Sunn1el1ght/Sunn1el1ght** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
